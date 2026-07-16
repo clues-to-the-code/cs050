@@ -2,11 +2,7 @@
 https://github.com/user-attachments/assets/8a936054-85ac-422b-a206-e7baa3f838cc
 
 ## Ballerina danced perfectly
-https://github.com/user-attachments/assets/c2bd83c8-5a25-4b6f-956d-eaa76bcf923b
-
-
-
-
+https://github.com/user-attachments/assets/cd605561-b16a-4cc6-abc0-4ff0f9e881a8
 
 ## Scene 1
 
